@@ -1,2 +1,2 @@
 # I3DBEEZ9-
-#Sources will be soon available
+# Available to Market - www.i3dbee.com
